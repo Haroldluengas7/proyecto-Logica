@@ -1,1 +1,1 @@
-# proyecto-Logica
+# Harold Luengas y Jhon Gualteros
